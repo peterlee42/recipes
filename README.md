@@ -1,2 +1,2 @@
 # Recipes
-Cool recipes 
+Cool Italian recipes 
